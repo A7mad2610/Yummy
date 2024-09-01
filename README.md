@@ -1,0 +1,6 @@
+![Beats](Annotation%202024-08-23%20193751.png)
+![Beats](Annotation%202024-08-23%20193826.png)
+![Beats](Annotation%202024-08-23%20193850.png)
+![Beats](Annotation%202024-08-23%20193911.png)
+![Beats](Annotation%202024-08-23%20193939.png)
+![Beats](Annotation%202024-08-23%20194000.png)
